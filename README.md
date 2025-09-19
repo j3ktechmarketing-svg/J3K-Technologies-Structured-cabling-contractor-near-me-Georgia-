@@ -1,4 +1,4 @@
-# J3K Technologies Structured cabling contractor near me Georgia 
+# J3K Technologies| Structured cabling contractor near me Georgia | Structured cabling service provider Georgia | Structured cabling for businesses Georgia
 Reliable structured cabling contractor, service provider, and business cabling solutions across Georgia by J3K Technologies. Build a secure, scalable, and future-ready network for your business.
 # Professional Structured Cabling Solutions Across Georgia  
 
